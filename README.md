@@ -43,4 +43,5 @@ And as for this sounding weird?
 * The 45th President-elect of the United States of America - [https://en.wikipedia.org/wiki/Donald_Trump]
 
 #### Fantasy
-* We're all super genius' that actually could all be Stephen Hawking in a few weeks if we just accepted that we've evolved to be far smarter than people originally thought. Language couldn't even keep up with us! We talk in MEMES now! Because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words.
+* That 'everyone' has actually evolved a lot faster than people thought. Anyone could teach anyone anything they knew in such a short period of time, but that sounds like it makes people 'not special'. The truth however is in our language. Most people talk in MEMES now, because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words.
+ The amazing thing is the human brain is already capable of learning VERY complicated things very fast, and the older they get the SMARTER they are. It is perhaps the easiest theory to disprove, and yet 'you' are still reading this.
