@@ -45,11 +45,13 @@ And as for this sounding weird?
 #### Fantasy
 * That 'everyone' has actually evolved a lot faster than people thought. Anyone could teach anyone anything they knew in such a short period of time, but that sounds like it makes people 'not special'. The truth however is in our language. Most people talk in MEMES now, because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words.
  The amazing thing is the human brain is already capable of learning VERY complicated things very fast, and the older they get the SMARTER they are. It is perhaps the easiest theory to disprove, and yet 'you' are still reading this.
+
 # CREDITS AND DEBITS
+
 Without these special people, you wouldn't be reading Y.O.S.H.
-When this organization cannot make good on its mission statement, we want the world to know that even we have dues to pay to those who have provided so much that we are indebted to them. If they are on this list, we owe them something. Work. Money. Coffee. Time. We will maintain this list so they know they will never be forgotten, and Y.O.S.H. will always pay its debts.
-* Urga
-* Chef
+When this organization cannot make good on its mission statement, we want the world to know that even we have dues to pay to those who have provided so much that we are indebted to them. If they are on this list, we owe them something. Work. Money. Coffee. Time. We will maintain this list so they know we will only allow them to be forgotten when we have repaid you as you see fit.
+* Urga (Money, and a seat at the negotiating table.)
+* Chef (Money, and a seat at the negotiating table.)
 
 The Y.O.S.H. team also wishes to acknowledge those (who are allowing us to do so) who have provided tangible help so far:
 * Cookie
