@@ -43,4 +43,4 @@ And as for this sounding weird?
 * The 45th President-elect of the United States of America - [https://en.wikipedia.org/wiki/Donald_Trump]
 
 #### Fantasy
-We're all super genius' that actually could all be Stephen Hawking in a few weeks if we just accepted that we've evolved to be far smarter than people originally thought. Language couldn't even keep up with us! We talk in MEMES now! Because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words.
+* We're all super genius' that actually could all be Stephen Hawking in a few weeks if we just accepted that we've evolved to be far smarter than people originally thought. Language couldn't even keep up with us! We talk in MEMES now! Because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words.
