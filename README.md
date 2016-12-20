@@ -38,4 +38,5 @@ Use Y.O.S.H. first. Prove it wrong, or right. Let 'us' do the work for you, and 
 ## Dunno man, this still sounds weird. What about people that don't even care?
 At Y.O.S.H. we ask you to be selfish first, and we will enable that any way we can. You don't have to care. This system has to work for ALL humanity, even those that want to be let alone.
 
-And as for this sounding weird? Sure, our name might sound weird... but we're pretty confident our message is nowhere near as weird as reality at this point: [The 45th President-elect of the United States of America]https://en.wikipedia.org/wiki/Donald_Trump
+And as for this sounding weird? Sure, our name might sound weird... but we're pretty confident our message is nowhere near as weird as reality at this point.
+The 45th President-elect of the United States of America - [https://en.wikipedia.org/wiki/Donald_Trump]
