@@ -55,4 +55,4 @@ When this organization cannot make good on its mission statement, we want the wo
 
 The Y.O.S.H. team also wishes to acknowledge those (who are allowing us to do so) who have provided tangible help so far:
 * Cookie
-* Pheonix
+* Phoenix
