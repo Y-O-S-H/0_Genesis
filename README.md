@@ -39,20 +39,26 @@ Use Y.O.S.H. first. Prove it wrong, or right. Let 'us' do the work for you, and 
 At Y.O.S.H. we ask you to be selfish first, and we will enable that any way we can. You don't have to care. This system has to work for ALL humanity, even those that want to be let alone.
 
 And as for this sounding weird?
+
 #### Reality
 * The 45th President-elect of the United States of America - [https://en.wikipedia.org/wiki/Donald_Trump]
 
 #### Fantasy
-* That 'everyone' has actually evolved a lot faster than people thought. Anyone could teach anyone anything they knew in such a short period of time, but that sounds like it makes people 'not special'. The truth however is in our language. Most people talk in MEMES now, because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words.
- The amazing thing is the human brain is already capable of learning VERY complicated things very fast, and the older they get the SMARTER they are. It is perhaps the easiest theory to disprove, and yet 'you' are still reading this.
+* That 'everyone' has actually evolved a lot faster than people thought. Anyone could teach anyone anything they knew in such a short period of time, but that sounds like it makes people 'not special'. The truth however is in our language. Most people talk in MEMES now, because they encapsulate for so many people a far more concise and emotive point that they want to express, without having to read a lot of books so they know fancy enough words. The amazing thing is the human brain is already capable of learning VERY complicated things very fast, and the older they get the SMARTER they are. It is perhaps the easiest theory to disprove, and yet 'you' are still reading this.
 
 # CREDITS AND DEBITS
 
 Without these special people, you wouldn't be reading Y.O.S.H.
-When this organization cannot make good on its mission statement, we want the world to know that even we have dues to pay to those who have provided so much that we are indebted to them. If they are on this list, we owe them something. Work. Money. Coffee. Time. We will maintain this list so they know we will only allow them to be forgotten when we have repaid you as you see fit.
-* Urga (Money, and a seat at the negotiating table.)
-* Chef (Money, and a seat at the negotiating table.)
+When this organization cannot make good on its mission statement, we want the world to know that even we have dues to pay to those who have provided so much that we are indebted to them. If they are on this list, we owe them something. Work. Money. Coffee. Time. We will maintain this list so they know we will only allow us to forget our debts when they have repaid to our debtors satisfaction.
 
-The Y.O.S.H. team also wishes to acknowledge those (who are allowing us to do so) who have provided tangible help so far:
+###Debits
+
+* Urga (Money, and first pick of any seat feasible for them to take at any Y.O.S.H. negotiating table.)
+* Chef (Money, and first pick of any seat feasible for them to take at any Y.O.S.H. negotiating table.)
+
+###Credits
+
+The Y.O.S.H. team also wishes to acknowledge those (who are allowing us to do so) who have provided tangible help so far. This list isn't any less important, it's just not something we have to give our accountants or lawyers. We keep THIS list because we like being given a shoutout if we do something good, so it only makes sense for us to do the same for those who have truly helped.
+
 * Cookie
 * Phoenix
