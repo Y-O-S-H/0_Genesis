@@ -62,3 +62,5 @@ The Y.O.S.H. team also wishes to acknowledge those (who are allowing us to do so
 
 * Cookie
 * Phoenix
+* CookieCat3
+* JakeF
