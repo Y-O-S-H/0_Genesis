@@ -1,5 +1,5 @@
 # 0_Genesis
-Mission statement and guidelines for how Y.O.S.H. should evolve
+Mission statement and guidelines for how Y.O.S.H. should evolve. Since you can consider this the 'alpha' phase, please note that information will be added to the relevant repository when it has become available.
 
 ## Mission Statement
 To provide a simple, logical presentation of information in as digestable a package that 'humanity' could provide that will enable personal, social, and communal growth.
