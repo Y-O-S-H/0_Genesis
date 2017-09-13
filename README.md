@@ -1,4 +1,4 @@
-# 0_Genesis
+# 0_Genesis - Kek|(I|We)(Are|Am)Process|Kek
 Mission statement and guidelines for how Y.O.S.H. should evolve. Since you can consider this the 'alpha' phase, please note that information will be added to the relevant repository when it has become available.
 
 ## Mission Statement
