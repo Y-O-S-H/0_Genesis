@@ -1,30 +1,40 @@
-# 0_Genesis - Kek|(I|We)(Are|Am)Process|Kek
-Mission statement and guidelines for how Y.O.S.H. should evolve. Since you can consider this the 'alpha' phase, please note that information will be added to the relevant repository when it has become available.
+# 0_Genesis (This means the start of communication)
+Mission statement and guidelines for how Y.O.S.H. should evolve. Since you can consider this the 'alpha' phase, please note that information will be added to the relevant repository when it becomes available.
 
 ## Mission Statement
-To provide a simple, logical presentation of information in as digestable a package that 'humanity' could provide that will enable personal, social, and communal growth.
+To provide a simple, logical presentation of information in as digestable a package that 'humanity' could provide which enables personal, social, and communal growth.
 
 ## Y-O-S-H (YourOpenSourceHumanity)
 
-1. Food (Sourcing food; easy diet/nutrition; eating habits; help.)
+### 1. Food
+Sourcing food; easy diet/nutrition; eating habits; help.
 
-2. Security (Access to health/security/shelter/stability; confidence of current knowledge.)
+### 2. Security
+Access to health/security/shelter/stability; confidence of current knowledge.
 
-3. Learning (Art/Education/Hobbies/Passion/Science/Skills/Learning how to give yourself more free time/Self Improvement.)
+### 3. Learning
+Art/Education/Hobbies/Passion/Science/Skills/Learning how to give yourself more free time/Self Improvement.
 
-4. Economy (Learning how to effeciently utilize the flow of a resource from sourcing to consumption.)
+### 4. Economy
+Learning how to effeciently utilize the flow of a resource from sourcing to consumption.
 
-5. Maintenance (The importance of ensuring the sustainability of your economic environment.)
+### 5. Maintenance
+The importance of ensuring the sustainability of your economic environment.
 
-6. Tribe (Learning how to coexist and benefit both yourself and your family, friends, pets, and close personal relationships; either by choice, environment, or biology.)
+### 6. Tribe
+Learning how to coexist and benefit both yourself and your family, friends, pets, and close personal relationships; either by choice, environment, or biology.
 
-7. Village (Interacting effectively within your community; ability to interact/trade with strangers/others for the best economic result.)
+### 7. Village
+Interacting effectively within your community; ability to interact/trade with strangers/others for the best economic result.
 
-8. Love_and_Sex (How to effectively understand yourself in relation to the concepts of sex and love, and how they apply to individuals and society.)
+### 8. Love_and_Sex
+How to effectively understand yourself in relation to the concepts of sex and love, and how they apply to individuals and society.
 
-9. Luxury (You've reached your best! You really have earned it, enjoy it! Every human being deserves to bask in whatever glory they create.)
+### 9. Luxury
+You've reached your best! You really have earned it, enjoy it! Every human being deserves to bask in whatever glory they create.
 
-10. Forgiveness (Learning to truly accept yourself and others; understanding that it does not mean you or anyone else has to change. You just have to talk.)
+### 10. Forgiveness
+Learning to truly accept yourself and others; understanding that it does not mean you or anyone else has to change. You just have to talk.
 
 ## Huh? Are you saying you want to help EVERYONE? How? You sure as hell don't know 'me'!
 That's true, I don't know you. I just know how to do 'human' my way, so... tell me how to do yours. I'm willing to learn your way. I believe it's achieveable because Y.O.S.H.'s goal is to present an easily understandable and logical framework that enables growth both personally and globally. But those are 'my' words, and the trouble with THAT is that a lot of people like to argue about words and sentences, or even the messenger.
@@ -51,12 +61,12 @@ And as for this sounding weird?
 Without these special people, you wouldn't be reading Y.O.S.H.
 When this organization cannot make good on its mission statement, we want the world to know that even we have dues to pay to those who have provided so much that we are indebted to them. If they are on this list, we owe them something. Work. Money. Coffee. Time. We will maintain this list so they know we will only allow us to forget our debts when they have repaid to our debtors satisfaction.
 
-###Debits
+### Debits
 
 * Urga (Money, and first pick of any seat feasible for them to take at any Y.O.S.H. negotiating table.)
 * Chef (Money, and first pick of any seat feasible for them to take at any Y.O.S.H. negotiating table.)
 
-###Credits
+### Credits
 
 The Y.O.S.H. team also wishes to acknowledge those (who are allowing us to do so) who have provided tangible help so far. This list isn't any less important, it's just not something we have to give our accountants or lawyers. We keep THIS list because we like being given a shoutout if we do something good, so it only makes sense for us to do the same for those who have truly helped.
 
